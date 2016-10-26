@@ -1,1 +1,0 @@
-Afegeixo fitxer
